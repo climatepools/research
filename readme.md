@@ -9,9 +9,10 @@
 
 ## Reading List
 - Aspects of the Novel, Forrester
+- If I Understood You, Would I Have This Look On My Fact, Alda (see notes)
 
 ## Ideas
-- Ad campaig showing grandkids talking to their grandparents about what it was like in the old days, and why they didn't do anything about it. Stories from around the world, located on a google map that shows present and future
+- Ad campaign showing grandkids talking to their grandparents about what it was like in the old days, and why they didn't do anything about it. Stories from around the world, located on a google map that shows present and future
     - Kids stories from the future world that show the loss
     - Emphasize empathy
     - Possible problems
